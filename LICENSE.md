@@ -1,4 +1,4 @@
-
+Get the ultimate Lightroom for macOS utility with Lightroom for macOS rare Utility: batch-processing & video-trimming. Featuring batch-processing and video-trimming, it's the best
 
 
 
